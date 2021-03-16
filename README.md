@@ -1,4 +1,6 @@
 ### Omegle-IP-Steal
+### IM TAKED THIS FROM YOUTUTBE IM NOT CREATE THIS I ONLY WANT TO SHOW YOU THIS HERE IS LINK OF YT VIDEO THERE IS ALL DETALS HOW TO USE THIS:
+### https://www.youtube.com/watch?v=fN9cWpY5zUc
 # USAGE:
 ### GO HERE
 ![](https://cdn.discordapp.com/attachments/810997546914021397/815576107927470130/Screenshot_303.png)
